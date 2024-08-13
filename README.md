@@ -21,3 +21,9 @@ Meu nome é Gustavo Tavares
 
 
 00001104040281sp@al.educacao.sp.gov.br
+
+
+
+
+![](https://tenor.com/pt-BR/view/eye-roll-robert-downey-jr-sassy-over-it-ugh-gif-3635563)
+
